@@ -24,7 +24,7 @@ Interests: AI development, web applications, ethical tech
 
 🌍 Beyond Code
 
-I serve as the Social Chair for Spelman Protégé, Digital Editor for Sustainable Spelman, and a member of the Social Organization Committee for Tiny Tummy Trust — combining leadership, collaboration, and community engagement.
+I serve as the Social Chair for Spelman Protégé, Digital Editor for Sustainable Spelman, and a member of the Social Organization Committee for Tiny Tummy Trust, combining leadership, collaboration, and community engagement.
 
 🚀 Mission
 
